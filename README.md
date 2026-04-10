@@ -1,2 +1,2 @@
-# B-i-T-p-Tr-n-l-p-v-V-nh-
-A* Và AKT của Đỗ Thành Lộc
+# của Đỗ Thành Lộc
+A* Và AKT 
